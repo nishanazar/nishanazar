@@ -7,7 +7,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/nishanazar](https://github.com/nishanazar)
 
-- 📫 How to reach me **zuhaibsoomrosst@gmail.com**
+- 📫 How to reach me **hassebsoomro2233@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
